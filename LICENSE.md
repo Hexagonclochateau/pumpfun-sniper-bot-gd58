@@ -1,4 +1,4 @@
-# 
+# AI-powered Scanner for new token sniper bot | snipe-list-management & MEV-detection is the best new token sniper bot, featuring snipe-list-management and MEV-detection. Fast,
 
 
 
